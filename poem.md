@@ -1,22 +1,25 @@
-Richard the First, Coeur-de-Lion, 
-Is a name that we speak of with pride, 
+**Richard the First, Coeur-de-Lion,**
+
+Is a name that we speak of with pride,
+
 Though he only lived six months in England
+
 From his birth to the day that he died. 
 
-He spent all his time fighting battles, 
-Dressed up in most rigid attire, 
-For he had his suits made by the Blacksmith, 
-And his underwear knitted of wire. 
+<br>He spent all his time fighting battles,<br> 
+<br>Dressed up in most rigid attire,<br>
+<br>For he had his suits made by the Blacksmith,<br>
+<br>And his underwear knitted of wire.<br>
 
-He married a lady from Flanders, 
-Berengaria's what they called her; 
-She turned out a good wife to Richard, 
-In spite of a name like that there. 
+*He married a lady from Flanders,* 
+*Berengaria's what they called her;* 
+*She turned out a good wife to Richard,*
+*In spite of a name like that there.* 
 
-For when he came home from his fighting 
-She'd bandage the wounds in his sconce, 
-And every time a snake bit him 
-She'd suck out the poison at once. 
+* For when he came home from his fighting 
+* She'd bandage the wounds in his sconce, 
+* And every time a snake bit him 
+* She'd suck out the poison at once. 
 
 In their 'ouse they'd a minstrel called Blondel 
 To amuse them at t'end of the day' 
