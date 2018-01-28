@@ -29,59 +29,60 @@ From his birth to the day that he died.
 
 *He had nobbut one tune he could play.* 
 
-The Queen saw nowt wrong with the number 
-And would have it again and again, 
-And when Richard said: "Put a sock in it!" 
-She'd give 'im a look full of pain. 
+<li>The Queen saw nowt wrong with the number<li> 
+<liAnd would have it again and again,<li>
+<li>And when Richard said: "Put a sock in it!"<li> 
+<li>She'd give 'im a look full of pain.<li> 
 
-The King got fed up at the finish, 
-And were so sick of 'earing it played, 
-That he packed his spare suit on a wagon 
-And went off and joined the Crusade.
+<li>The King got fed up at the finish,<li> 
+<li>And were so sick of 'earing it played,<li> 
+<li>That he packed his spare suit on a wagon<li> 
+<li>And went off and joined the Crusade.<li>
 
-He got fighting the moment he landed,
-And though Saracen lads did their best, 
-He cut off their heads in such numbers, 
-That the hatmakers lodged a protest. 
+<li>He got fighting the moment he landed,<li>
+<li>And though Saracen lads did their best,<li> 
+<li>He cut off their heads in such numbers,<li> 
+<li>That the hatmakers lodged a protest.<li> 
 
-The Sultan, whose name were Saladin, 
-Thought he'd best try this business to stem,
-So he rode up to Richard and told him 
-He mustn't do that there to them. 
+<li>The Sultan, whose name were Saladin,<li> 
+<li>Thought he'd best try this business to stem,<li>
+<li>So he rode up to Richard and told him<li> 
+<li>He mustn't do that there to them.<li> 
 
-Said Richard: "Oh! Who's going to stop me?" 
-Said Saladin: "I will-and quick!" 
-So the King poked his sword at the Sultan, 
-Who, in turn, swiped his skimpter at Dick. 
+<li>Said Richard: "Oh! Who's going to stop me?"<li> 
+<li>Said Saladin: "I will-and quick!"<li> 
+<li>So the King poked his sword at the Sultan,<li> 
+<li>Who, in turn, swiped his skimpter at Dick.<li> 
 
-They fought all that day without ceasing; 
-They fought till at last they both saw 
-That each was a match for the other, 
-So they chucked it and called it a draw. 
+<li>They fought all that day without ceasing;<li> 
+<li>They fought till at last they both saw<li> 
+<li>That each was a match for the other,<li> 
+<li>So they chucked it and called it a draw.<li> 
 
-As Richard rode home in the moonlight 
-He heard someone trying to croon, 
-And there by the roadside stood Blondel, 
-Still playing his signature tune. 
+<li>As Richard rode home in the moonlight<li> 
+<li>He heard someone trying to croon,<li> 
+<li>And there by the roadside stood Blondel,<li> 
+<li>Still playing his signature tune.<li> 
 
-He'd worked out his passage from England 
-In search of his Master and Lord, 
-And had swum the last part of the journey 
-'Cos his tune got 'im thrown overboard. 
+<li>He'd worked out his passage from England<li> 
+<li>In search of his Master and Lord,<li> 
+<li>And had swum the last part of the journey<li> 
+<li>'Cos his tune got 'im thrown overboard.<li> 
 
-This meeting filled Richard with panic: 
-He rode off and never drew rein 
-Till he got past the Austrian border 
-And felt he could breathe once again. 
+<li>This meeting filled Richard with panic:<li> 
+<li>He rode off and never drew rein<li> 
+<li>Till he got past the Austrian border<li> 
+<li>And felt he could breathe once again.<li> 
 
-He hid in a neighbouring Castle,
-But he hadn't been there very long 
-When one night just outside his window 
-Stood Blondel, still singing his song. 
+<li>He hid in a neighbouring Castle,<li>
+<li>But he hadn't been there very long<li> 
+<li>When one night just outside his window<li> 
+<li>Stood Blondel, still singing his song.<li> 
 
-This 'ere took the heart out of Richard;
-He went home dejected and low, 
-And the very next fight he got into 
-He were killed without striking a blow. 
-Marriott Edgar
+<li>This 'ere took the heart out of Richard;<li>
+<li>He went home dejected and low,<li> 
+<li>And the very next fight he got into<li> 
+<li>He were killed without striking a blow.<li>
+<li>Marriott Edgar<li>
+  
 https://www.poemhunter.com/poem/richard-coeur-de-lion/
