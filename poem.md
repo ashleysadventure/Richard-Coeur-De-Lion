@@ -21,10 +21,13 @@ From his birth to the day that he died.
 * And every time a snake bit him 
 * She'd suck out the poison at once. 
 
-In their 'ouse they'd a minstrel called Blondel 
-To amuse them at t'end of the day' 
-And the King had but one thing against him...
-He had nobbut one tune he could play. 
+*In their 'ouse they'd a minstrel called Blondel*
+
+*To amuse them at t'end of the day'*
+
+*And the King had but one thing against him...*
+
+*He had nobbut one tune he could play.* 
 
 The Queen saw nowt wrong with the number 
 And would have it again and again, 
