@@ -1,4 +1,6 @@
-**Richard Coeur De Lion**
+**Richard Coeur De Lion** :heart::lion:
+
+*Marriott Edgar*
 
 Richard the First, Coeur-de-Lion, <br>
 Is a name that we speak of with pride, <br>
@@ -24,7 +26,7 @@ In their 'ouse they'd a minstrel called Blondel  <br>
 To amuse them at t'end of the day'  <br>
 And the King had but one thing against him... <br>
 He had nobbut one tune he could play.  <br>
- 
+
 The Queen saw nowt wrong with the number  <br>
 And would have it again and again,  <br>
 And when Richard said: "Put a sock in it!"  <br>
@@ -49,7 +51,7 @@ Said Richard: "Oh! Who's going to stop me?"  <br>
 Said Saladin: "I will-and quick!"  <br>
 So the King poked his sword at the Sultan,  <br>
 Who, in turn, swiped his skimpter at Dick.  <br>
- 
+
 They fought all that day without ceasing;  <br>
 They fought till at last they both saw  <br>
 That each was a match for the other,  <br>
@@ -79,5 +81,7 @@ This 'ere took the heart out of Richard; <br>
 He went home dejected and low,  <br>
 And the very next fight he got into  <br>
 He were killed without striking a blow.  <br>
+
+[Richard Coeur De Lion Poem by Marriott Edgar - Poem Hunter](https://www.poemhunter.com/poem/richard-coeur-de-lion/)
   
-https://www.poemhunter.com/poem/richard-coeur-de-lion/
+
