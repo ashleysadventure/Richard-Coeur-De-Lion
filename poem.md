@@ -1,8 +1,8 @@
 **Richard Coeur De Lion**
 
 Richard the First, Coeur-de-Lion, <br>
-Is a name that we speak of with pride, <br> 
-Though he only lived six months in England <br>
+Is a name that we speak of with pride, <br>
+Though he only lived six months in England <br>
 From his birth to the day that he died.  <br>
 
 He spent all his time fighting battles,  <br>
